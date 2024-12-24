@@ -38,8 +38,25 @@ Access the recordings and materials for each section of the course:
 3. **Part 3: **  
    [Recording Link](https://drive.google.com/drive/folders/1-vuEmJwOZt03k-1-bAIhXJQ56Di_s5TI?usp=sharing)
    
-3. **Part 4: **  
+4. **Part 4: **  
    [Recording Link](https://drive.google.com/drive/folders/1ByhJmfaJOTT0khLEvGZaQ93NwBiP0-jj?usp=sharing)  
+
+---
+
+## 📂 Course Materials and Recordings V-DEC24
+
+Access the recordings and materials for each section of the course:  
+
+1. **Day 1: ** [Recording Link](https://drive.google.com/drive/folders/1orgt0TNFFAibvGbPAfdMoCRXgeo8RtIU?usp=sharing)  
+
+2. **Day 2: **  [Recording Link](https://drive.google.com/drive/folders/1KYABXsMFy4K2LHhj8Dz5Qd33pj5_0a6Y?usp=sharing)  
+
+3. **Day 3: **  [Recording Link](https://drive.google.com/drive/folders/1fTpm4IjLygREG4OaMbfcDBupi_OOvI8G?usp=sharing)
+   
+4. **Day 4: **  [Recording Link](https://drive.google.com/drive/folders/11-B_x7gbMuLGef0DYUS7z8pbuxQSepUY?usp=sharing)
+   
+5. **Day 5: **  [Recording Link](https://drive.google.com/drive/folders/1sXH2ng2CmCKGtaoO_reEbh0MoKF4qMD8?usp=sharing)  
+
 
 ---
 
