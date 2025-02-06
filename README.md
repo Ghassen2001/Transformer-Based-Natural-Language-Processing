@@ -24,25 +24,6 @@ By completing this course, you will:
    - Question Answering  
 
 ---
-
-## 📂 Course Materials and Recordings
-
-Access the recordings and materials for each section of the course:  
-
-1. **Part I: **  
-   [Recording Link](https://drive.google.com/drive/folders/1Mx1ZxfGDHw3-7GIA0OZRI3SYX5ZQt7re?usp=sharing)  
-
-2. **Part 2: **  
-   [Recording Link](https://drive.google.com/drive/folders/1cXJQdAxVuSlfIfTb76b0jKeVOBMW6jcO?usp=sharing)  
-
-3. **Part 3: **  
-   [Recording Link](https://drive.google.com/drive/folders/1-vuEmJwOZt03k-1-bAIhXJQ56Di_s5TI?usp=sharing)
-   
-4. **Part 4: **  
-   [Recording Link](https://drive.google.com/drive/folders/1ByhJmfaJOTT0khLEvGZaQ93NwBiP0-jj?usp=sharing)  
-
----
-
 ## 📂 Course Materials and Recordings V-DEC24
 
 Access the recordings and materials for each section of the course:  
